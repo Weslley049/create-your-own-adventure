@@ -1,1 +1,2 @@
 Lutar por um sistema de ensino alternativo, que reconhecesse as qualidades únicas de cada ser humano.
+Lutar por um sistema de ensino que trabalhe todos os aspectos de aprendizado favorecendo diferentes tipos de abordagem.
